@@ -10,7 +10,6 @@
 
 <div align="center"> "to love me is to suffer me."
 
-<div align="center"> 
   [tumblr](https://www.tumblr.com/blog/antlerfaith)                  [ata](hauntantlers.atabook.org)
 
 <p align="center">
